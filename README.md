@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ofri-geva
-- 👀 I’m interested in coding, books, robotics and the outdoors
+- 👀 I’m interested in coding, and robotics
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on N/A
 - 📫 How to reach me 24gevao@brooklinek12.org
